@@ -1,1 +1,0 @@
-# generaarq6nm
